@@ -22,6 +22,6 @@ We reserve the right to update or change these terms at any time. Your continued
 
 ## Contact Us
 
-If you have any questions or concerns about these terms, please contact us at mythicfrost@gmail.com.
+If you have any questions or concerns about these terms, please contact us at officialmythicfrost@gmail.com.
 
-These Terms of Service were last updated on [02-01-2024].
+These Terms of Service were last updated on [29-01-2025].
